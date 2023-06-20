@@ -1,1 +1,1 @@
-Hej alla Raysare 2023!
+Hej Rays 2023!
